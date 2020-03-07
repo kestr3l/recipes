@@ -21,8 +21,8 @@ Ingredients
 Equipment
 ---------
 
-Large (6+ quart) slow cooker
-Can opener
+- Large (6+ quart) slow cooker
+- Can opener
 
 Steps
 -----
