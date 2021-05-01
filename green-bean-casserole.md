@@ -11,8 +11,7 @@ Ingredients
 
 - 2 cans cream of mushroom soup
 - 4 cans cut green beans
-- 2 containers of Frenh's Crispy Fried Onions
-- 1 cup milk
+- 2 containers of fried onions
 - 1 pack bacon bits
 
 Equipment
@@ -27,7 +26,7 @@ Steps
 -----
 
 1. Preheat the oven to 350F.
-2. Stir everything except one of the containers of fried onions together in the mixing bowl.
+2. Stir everything except one of the containers of fried onions together in the mixing bowl. Make sure to really drain the green beans first.
 3. Add pepper to taste.
 4. Dump into your baking dish.
 5. Bake for 25 minutes, then remove from the oven. Spread the second container of fried onions over the top.
